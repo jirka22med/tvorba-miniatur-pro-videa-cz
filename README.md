@@ -1,0 +1,1 @@
+# tvorba-miniatur-pro-videa-cz
